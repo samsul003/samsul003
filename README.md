@@ -1,4 +1,4 @@
-- 👋 Servus, I’m @Samsul Arefin
+- 👋🏼 Servus, I’m @Samsul Arefin
 - 📍 From 🇧🇩 & currently living in 🇩🇪 
 - 👨🏽‍💻 Working as a Software Engineer
 - 👀 Interested in 👨🏽‍💻 📷 🔭 🥾 🏞 🏔 🌌 🏕
